@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rositajane91
+- 👋 Hi, I’m Rosita!
 - 👀 I’m interested in tech, finance, travel, culture and cuisines
 - Avid Book reader and love to learn new languages (both Natural and Programming)
 
